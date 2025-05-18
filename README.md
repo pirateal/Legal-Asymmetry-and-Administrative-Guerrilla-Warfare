@@ -1,3 +1,17 @@
+
+
+
+![Cover](https://github.com/user-attachments/assets/47ddaccb-f918-4e8a-8bf3-94454d125765)
+
+
+
+
+
+
+
+
+
+
 # Legal A‑Symmetry and Administrative Guerrilla Warfare
 
 ## README
